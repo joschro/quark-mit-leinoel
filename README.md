@@ -6,20 +6,20 @@ Dieses Gericht ist ein von meiner Mutter überlieferter Klassiker aus der Berlin
 Zutaten für 4 Erwachsene
 ------------------------
 
-**2 1/2 lb (1,25kg) Magerquark**
-**250ml Leinöl** - erhältlich im Reformhaus oder inzwischen jedem gut sortierten Supermarkt; leider alle aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert - wer umweltbewusst einkauft, muss inzwischen im Internet nach "Leinöl" und "Spreewald" suchen... dafür wird man mit tollem Leinöl aus zum Teil familiengeführten Traditionsunternehmen belohnt, mit Preisen zwischen 4 und 8 Euro pro 250ml Flasche
-**1 große oder 2 kleine Zwiebeln**
-**1 Bund Schnittlauch**
-**1 Schuss Milch**
-**1 EL(!) Kräutersalz** (nur "Brecht Meereskräutersalz" aus dem Reformhaus - alles andere schmeckt nicht)
-**Pfeffer**
-je nach Laune (davon darf meine Mutter aber nichts wissen!)
+* **2 1/2 lb (1,25kg) Magerquark**
+* **250ml Leinöl** - erhältlich im Reformhaus oder inzwischen jedem gut sortierten Supermarkt; leider alle aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert - wer umweltbewusst einkauft, muss inzwischen im Internet nach "Leinöl" und "Spreewald" suchen... dafür wird man mit tollem Leinöl aus zum Teil familiengeführten Traditionsunternehmen belohnt, mit Preisen zwischen 4 und 8 Euro pro 250ml Flasche
+* **1 große oder 2 kleine Zwiebeln**
+* **1 Bund Schnittlauch**
+* **1 Schuss Milch**
+* **1 EL(!) Kräutersalz** (nur "Brecht Meereskräutersalz" aus dem Reformhaus - alles andere schmeckt nicht)
+* **Pfeffer**
+* je nach Laune (davon darf meine Mutter aber nichts wissen!)
 - 1 Prise süßes Paprikapulver
 - 1 Prise Currypulver
 - 1 Prise Peperoncino-Pulver
 - 1 Prise Kreuzkümmel
-**1 1/2 kg Kartoffeln** (am besten kleine, leicht süßliche Frühlingskartoffeln)
-**1/2 TL Kümmel**
+* **1 1/2 kg Kartoffeln** (am besten kleine, leicht süßliche Frühlingskartoffeln)
+* **1/2 TL Kümmel**
 
 Zubereitung
 -----------
