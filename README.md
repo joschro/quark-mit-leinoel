@@ -7,11 +7,11 @@ Zutaten für 4 Erwachsene
 ------------------------
 
 * **2 1/2 lb (1,25kg) Magerquark**
-* **250ml Leinöl** - erhältlich im Reformhaus oder inzwischen jedem gut sortierten Supermarkt; leider selbst als "Bio" allesamt aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert - wer bewusst lokal einkaufen will, muss inzwischen im Internet nach "Leinöl" und "Spreewald" suchen... dafür wird man mit tollem Leinöl aus zum Teil familiengeführten Traditionsunternehmen belohnt, mit Preisen zwischen 4 und 8 Euro pro 250ml Flasche (mein aktueller Preis-Leistungs-Favorit: https://www.spreewald-praesente.de/spreewald-shop/spreewald-produkte/bio-lebensmittel/bio-leinoel-kaltgepresst-spreewaelderin-6er-pack-6-flaschen-a-250-ml/a-3231)
+* **250ml Leinöl** - erhältlich im Reformhaus oder inzwischen jedem gut sortierten Supermarkt; leider selbst als "Bio" allesamt aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert - wer bewusst lokal einkaufen will, muss inzwischen im Internet nach "Leinöl" und "Spreewald" suchen... dafür wird man mit tollem Leinöl aus zum Teil familiengeführten Traditionsunternehmen belohnt, mit Preisen zwischen 4 und 8 Euro pro 250ml Flasche (mein aktueller Preis-Leistungs-Favorit: [BIO Leinöl kaltgepresst "Spreewälderin"](https://www.spreewald-praesente.de/spreewald-shop/spreewald-produkte/bio-lebensmittel/bio-leinoel-kaltgepresst-spreewaelderin-6er-pack-6-flaschen-a-250-ml/a-3231))
 * **1 große oder 2 kleine Zwiebeln**
 * **1 Bund Schnittlauch**
 * **1 Schuss Milch**
-* **1 EL(!) Kräutersalz** (nur "Brecht Meereskräutersalz" aus dem Reformhaus - alles andere schmeckt nicht)
+* **1 EL(!) Kräutersalz** (nur ["Brecht Meereskräutersalz" aus dem Reformhaus](https://www.reformhaus-shop.de/brecht-kraeuter-meersalz-nachfuelldose-500g/a-81144) - alles andere schmeckt nicht)
 * **Pfeffer**
 * je nach Laune (davon darf meine Mutter aber nichts wissen!)
   - 1 Prise süßes Paprikapulver
