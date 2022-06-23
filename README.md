@@ -1,7 +1,7 @@
 # Quark mit Leinöl und Pellkartoffeln
 Ein traditionelles Quark mit Leinöl Rezept aus Berlin / A receipt for a traditional dish from Berlin
 
-Dieses Gericht ist ein von meiner Mutter überlieferter Klassiker aus der Berliner Nachkriegszeit, als es rund um Berlin wenig gab außer die berühmten Leinölfelder. Zusammen mit Quark und Kartoffeln wurde daraus ein schmackhaftes Gericht zubereitet, dass sich jeder leisten konnte.
+Dieses Gericht ist ein von meiner Mutter überlieferter Klassiker aus der Berliner Nachkriegszeit, als es rund um Berlin wenig gab außer den berühmten Leinölfeldern. Zusammen mit Quark und Kartoffeln wurde daraus ein schmackhaftes Gericht zubereitet, dass sich jeder leisten konnte.
 
 Zutaten für 4 Erwachsene
 ------------------------
