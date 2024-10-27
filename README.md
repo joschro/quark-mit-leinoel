@@ -45,3 +45,5 @@ Wichtig: keine falsche Bescheidenheit beim Quark aufkommen lassen - die Menge so
 Guten Appetit!
 
 ...und wem es beim ersten Mal nicht schmeckt - geht den meisten genauso. Nicht aufgeben, spätestens ab dem dritten Mal stellt sich eine lebenslange Abhängigkeit ein :-)
+
+P.S.: Eine süße Variante für's Frühstücksbrot findet ihr [hier]()
