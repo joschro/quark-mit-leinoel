@@ -7,7 +7,7 @@ Zutaten für 4 Erwachsene
 ------------------------
 
 * **2 1/2 lb (1,25kg) Magerquark**
-* **250ml Leinöl** - erhältlich im Reformhaus oder inzwischen in jedem gut sortierten Supermarkt; leider selbst als "Bio" allesamt aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert - wer bewusst lokal einkaufen will, muss im Internet nach "Leinöl" und "Spreewald" suchen... dafür wird man mit tollem Leinöl aus zum Teil familiengeführten Traditionsunternehmen belohnt, mit Preisen zwischen 4 und 8 Euro pro 250ml Flasche (mein aktueller Preis-Leistungs-Favorit: [BIO Leinöl kaltgepresst "Spreewälderin"](https://www.spreewald-praesente.de/spreewald-shop/spreewald-produkte/bio-lebensmittel/bio-leinoel-kaltgepresst-spreewaelderin-6er-pack-6-flaschen-a-250-ml/a-3231))
+* **250ml Leinöl** - erhältlich im Reformhaus oder inzwischen in jedem gut sortierten Supermarkt; leider selbst als "Bio" zum größten Teil aus Kasachstan oder anderen weit entfernten Anbaugebieten importiert und teilweise mit Mineralöl kontaminiert - wer bewusst lokal einkaufen will, sollte den letzten Leinöl-Test von Öko-Test lesen. Mein aktueller Preis-Leistungs-Favorit: [BIO Leinöl kaltgepresst von DM](https://www.dm.de/dmbio-leinoel-p4066447195057.html)
 * **1 große oder 2 kleine Zwiebeln**
 * **1 Bund Schnittlauch**
 * **1 Schuss Milch**
